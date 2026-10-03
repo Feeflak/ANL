@@ -1,2 +1,2 @@
 # ANL
-Absolutley normal laptop with a absoultly normal name
+Absolutely normal laptop with a abbreviation that has absolutely no meaning
